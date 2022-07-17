@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @duhpez -- Artist: Duhpez / "Pen": Gavin Mitchell / Born: Mitch Wnorowski   
 - 🎨 I just recently finished Minting/Developing my very 1st NFT-collection (Wink_NFT) https://opensea.io/collection/winknft  
+- 💵 I'm trying very hard to ... Sell off my entire 1st Collection or sell/trade increments of it in large QTYs for JUST enough GAS/ETH to proparly launch my 2nd.   
 - 👀 I’m interested in ... Art, Music, Cars, Computers, Graphic & Web Design/Development.   
 - 🌱 I’m currently learning ... NFT Marketing, & Improving upon all of my NFT & Graphic/Web-Design related Skillsets   
-- 💵 I'm trying very hard to ... Sell off my entire 1st Collection or sell/trade increments of it in large QTYs for JUST enough GAS/ETH to proparly launch my 2nd.   
 - 😎 I'm also ... A Musician (Guitarist/Singer-Songwriter) working on Recording my newest Band's first EP.   
 - 💞️ I’m looking to collaborate on ... A Very Special Multi-Medium NFT Collection Including Most of the different Categories NFT's are divided into, all in 1 Project.   
 - 📫 How to reach me ...   
